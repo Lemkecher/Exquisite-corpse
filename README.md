@@ -11,3 +11,8 @@ EXQUISITE CORPSE
 ## SHowww PATATE !
 
 *******
+
+That's what they said.  
+The project we were working on was progressing but we had some some difficulties.  
+I hope we will finish what is left.
+
