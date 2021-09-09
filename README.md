@@ -4,3 +4,10 @@ EXQUISITE CORPSE
 
 <p>I think I'll use it to format all of my documents from now on.</p>
 <br> thats enough of lines </p>
+
+![OK](https://syspro3god.github.io/syspro3god/sajtovi/grupa1/FruljSajt/ragecomic12345.jpg)
+
+-------
+## SHowww PATATE !
+
+*******
