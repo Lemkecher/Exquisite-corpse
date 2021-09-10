@@ -14,5 +14,8 @@ EXQUISITE CORPSE
 
 That's what they said.  
 The project we were working on was progressing but we had some some difficulties.  
-I hope we will finish what is left.
+I hope we will finish what is left.   
 
+Oh no!! Only 3 more hours to go!!  
+We are so deeeeaaaadd...  
+Oh wait a second, I'm almost done, I might make it after all. YIPPEEEII!!!!
